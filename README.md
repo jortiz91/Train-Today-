@@ -14,7 +14,7 @@ Train Today, Not Tomorrow is a workout app designed to help you stay motivated a
 
 To get started with the Train Today, Not Tomorrow app, follow these steps:
 
-1. [Download the app
+1. Stay Motivated!
 2. Create a new account or log in to your existing account.
 3. Set up your profile, including your fitness goals and preferences.
 4. Explore the available workout plans and choose the one that suits your needs.
@@ -24,7 +24,7 @@ To get started with the Train Today, Not Tomorrow app, follow these steps:
 
 ## Feedback and Support
 
-We value your feedback and are dedicated to continuously improving the Train Today, Not Tomorrow app. If you encounter any issues, have suggestions, or need assistance, please reach out to our support team at support@traintoday.com.
+We value your feedback and are dedicated to continuously improving the Train Today, Not Tomorrow app. If you encounter any issues, have suggestions, or need assistance, please reach out to our support team at sei@traintoday.com.
 
 ## Stay Motivated, Train Today!
 
